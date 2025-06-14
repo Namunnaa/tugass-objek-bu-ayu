@@ -1,0 +1,1 @@
+# tugass-objek-bu-ayu
